@@ -1,7 +1,7 @@
 ### Un dia de partit 
-### al gol nord vaig anar 
-### només entrar a la grada 
-### em vaig enamorar 
+### Al gol nord vaig anar 
+### Només entrar a la grada 
+### Em vaig enamorar 
 ### El cor em bategava 
 ### No em preguntis perquè 
 ### Del Barça sóc supporter 
