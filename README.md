@@ -1,9 +1,12 @@
-##### Un dia de partit 
-##### Al gol nord vaig anar 
-##### Només entrar a la grada 
-##### Em vaig enamorar 
-##### El cor em bategava 
-##### No em preguntis perquè 
-##### Del Barça sóc supporter 
-##### Sempre t’animaré 
-##### Ale ale ale Ale ale ale Ale ale ale Ale ale ale. 
+🎶 Un dia de partit
+al Gol Nord vaig anar,
+només entrar a la grada
+em vaig enamorar!
+
+El cor em bategava,
+no em preguntis per què,
+del Barça sóc supporter,
+sempre t’animaré!
+
+Alé, alé, aléeeee…
+Alé, alé, aléeeeeeee… 🎶
