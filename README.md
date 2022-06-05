@@ -1,7 +1,7 @@
-🎶 Un dia de partit
-al Gol Nord vaig anar,
-només entrar a la grada
-em vaig enamorar!
+🎶 Un dia de partit <br>
+al Gol Nord vaig anar, <br>
+només entrar a la grada <br>
+em vaig enamorar! <br>
 
 El cor em bategava,
 no em preguntis per què,
